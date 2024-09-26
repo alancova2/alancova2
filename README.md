@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about Anything I'm a open book.
 - 📫 How to reach me: Coming soon! 
 - ⚡ Fun fact: Is that I'm left handed
--->
+
